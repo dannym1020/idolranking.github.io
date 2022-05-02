@@ -1,0 +1,1 @@
+# idolranking.github.io
